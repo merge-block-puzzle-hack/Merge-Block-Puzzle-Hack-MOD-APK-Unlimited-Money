@@ -1,4 +1,4 @@
-<h1>Merge-Block-Puzzle-Hack-MOD-APK-Unlimited-Money<?h1>
+<h1>Merge-Block-Puzzle-Hack-MOD-APK-Unlimited-Money</h1>
 Amazing Merge Block Puzzle Hack [2021 RUNNING] Android Unlimited Coins | iOS! 100% work
 
 Today we have put at your disposal the incredible Merge Block Puzzle Hack. This is truly an amazing online block melting puzzle hack that can generate unlimited coins on your game account.
